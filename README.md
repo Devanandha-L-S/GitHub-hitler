@@ -18,7 +18,7 @@ Agrima S R              present
 D Gowry Rejith "Present"
 Devkrishnan H P
 Aslah Ashraf 
-Adwayth Arun 
+Adwayth Arun present
 Devaanand s
 Anagha T A
 Deepak P
